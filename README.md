@@ -1,0 +1,2 @@
+# UL_INFORMATIKA_KELOMPOK-BETO
+ulangan 1, dan 2
